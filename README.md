@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @CyanideInDustForm
+- 👀 I’m interested in not do shit and make profit
+- 🌱 I’m currently learning how to actually do shit
+- 💞️ I’m looking to collaborate on making shit
+- 📫 How to reach me - don't
+- 😄 Pronouns: do/shit
+- ⚡ Fun fact: Steve Jobs dird of ligma
