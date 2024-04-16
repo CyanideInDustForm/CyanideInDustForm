@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on making shit
 - 📫 How to reach me - don't
 - 😄 Pronouns: do/shit
-- ⚡ Fun fact: Steve Jobs dird of ligma
+- ⚡ Fun fact: Steve Jobs died of ligma
